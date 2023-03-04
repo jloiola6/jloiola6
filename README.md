@@ -1,5 +1,5 @@
 # 💫 About Me:
-No momento desempregado mas no momento  estudando feito um louco.<br><br>Sem intrigas com outras linguagens mas Python tem um lugarzinho no meu coraçãozin s2<br>
+No momento desempregado mas estudando feito um louco.<br><br>Sem intrigas com outras linguagens mas Python tem um lugarzinho no meu coraçãozin s2<br>
 
 
 ## 🌐 Socials:
